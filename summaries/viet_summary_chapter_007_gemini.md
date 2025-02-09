@@ -1,0 +1,29 @@
+## 7. Ngô và Béo phì: Ăn Nhiều Hơn Nữa Được Không?
+
+Hãy tưởng tượng bạn có một siêu năng lực: bạn có thể trồng vô số lương thực, đủ để ai cũng được no bụng. Nghe tuyệt vời phải không?  Điều này phần nào đã xảy ra với cây ngô ở Mỹ. Nông dân đã trồng ngô giỏi đến mức chúng ta có quá nhiều lương thực, đặc biệt là các sản phẩm làm từ ngô, vượt xa nhu cầu thực tế. Nhưng siêu năng lực này lại có mặt trái. Giống như việc mẹ bạn luôn dặn ăn quá nhiều kẹo sẽ không tốt, ăn quá nhiều bất kỳ loại thực phẩm nào cũng vậy. Chương này sẽ nói về việc ngô giá rẻ, dồi dào đã khiến chúng ta ăn quá nhiều và hậu quả của nó.
+
+Rất nhiều người Mỹ, kể cả trẻ em, đang bị thừa cân, béo phì. Tình trạng này có thể dẫn đến các vấn đề sức khỏe nghiêm trọng như tiểu đường, gây mù lòa, mất chi, thậm chí tử vong.  Đáng lo ngại là trẻ em ngày nay có thể sống thọ ít hơn cha mẹ chúng do các vấn đề sức khỏe liên quan đến thừa cân.
+
+Có rất nhiều nguyên nhân dẫn đến tình trạng này. Chúng ta ngồi nhiều – ở trường, ở cơ quan, trước tivi. Chúng ta chơi điện tử thay vì chạy nhảy ngoài trời. Chúng ta liên tục nhìn thấy quảng cáo thức ăn nhanh với những phần ăn khổng lồ đầy hấp dẫn. Và, tin hay không thì tùy bạn, mua thực phẩm chế biến sẵn không lành mạnh lại rẻ hơn mua thực phẩm tươi sống như rau củ quả. Tất cả những điều này đều đúng, nhưng nguyên nhân chính yếu nhất vẫn là chúng ta đang ăn quá nhiều. Thực phẩm giá rẻ quá dồi dào khiến chúng ta khó lòng cưỡng lại.
+
+Kể từ năm 1977, lượng calo người Mỹ nạp vào mỗi ngày đã tăng đáng kể. Vì chúng ta không vận động nhiều hơn để đốt cháy lượng calo dư thừa, cơ thể tích trữ chúng dưới dạng mỡ. Và phần lớn lượng calo rẻ tiền này đến từ đâu? Chính là từ ngô.
+
+Sản lượng ngô hiện nay quá lớn, đến mức mỗi người dân Mỹ có thêm khoảng 500 calo từ ngô mỗi ngày.  Một người bình thường cần khoảng 2.000 calo mỗi ngày. Nhưng vì lượng ngô dư thừa này, hiện có tới 2.500 calo sẵn có cho mỗi người. Một phần ngô được xuất khẩu, một phần được dùng làm nhiên liệu sinh học, nhưng phần lớn lại đi vào thực phẩm chúng ta ăn.
+
+Một trong những cách chúng ta tiêu thụ lượng calo dư thừa từ ngô là qua siro ngô hàm lượng cao fructose (HFCS). HFCS là một chất tạo ngọt siêu mạnh được làm từ ngô, và nó có mặt ở khắp mọi nơi! Chúng ta không chỉ tiêu thụ nhiều HFCS hơn bao giờ hết mà còn tiêu thụ nhiều đường thông thường hơn nữa. Chúng ta thích đồ ngọt, và ngành công nghiệp thực phẩm biết điều đó.  Thêm đường vào thực phẩm khiến chúng ta muốn ăn nhiều hơn. Đó là lý do tại sao HFCS mang lại lợi nhuận cao cho các công ty thực phẩm.
+
+Bạn sẽ thấy HFCS được liệt kê trong danh sách thành phần của rất nhiều loại thực phẩm. Nó không chỉ có trong nước ngọt và bánh kẹo; mà còn có trong tương cà, bánh mì, bánh quy giòn, thậm chí cả xúc xích! Nhưng thủ phạm lớn nhất chính là nước ngọt. Vào năm 1980, Coca-Cola bắt đầu sử dụng HFCS, và ngay sau đó Pepsi cũng làm theo. Tại sao? Vì nó rẻ hơn đường một chút, và người tiêu dùng không nhận ra sự khác biệt.
+
+Các công ty nước ngọt không chỉ chuyển sang dùng HFCS; họ còn tăng kích cỡ chai lọ. Vì chất tạo ngọt rất rẻ, họ có thể khiến chúng ta mua nhiều nước ngọt hơn chỉ với một khoản tiền chênh lệch nhỏ.  Còn nhớ những chai Coca-Cola thủy tinh nhỏ ngày xưa chứ? Chúng chỉ chứa 237ml.  Giờ đây, một chai nước ngọt thông thường là 591ml hoặc hơn!
+
+Ý tưởng "siêu lớn" này đến từ David Wallerstein. Ông làm việc tại một rạp chiếu phim và nhận thấy mọi người không mua soda hoặc bỏng ngô lần thứ hai vì họ cảm thấy tham lam. Vì vậy, ông đã nghĩ ra ý tưởng bán những phần ăn khổng lồ. Bằng cách đó, mọi người có thể ăn nhiều hơn nhưng chỉ mua một món.  Ý tưởng này đã thành công vang dội! Ông thậm chí còn cố gắng thuyết phục McDonald's tăng kích cỡ suất ăn của họ, và cuối cùng họ đã làm. Doanh số bán hàng tăng vọt vì mọi người cảm thấy ổn khi ăn nhiều hơn vì về mặt kỹ thuật nó vẫn chỉ là một suất.
+
+Cơ thể chúng ta được thiết kế để ăn khi có sẵn thức ăn vì trong một thời gian dài trong lịch sử loài người, thức ăn không phải lúc nào cũng dễ kiếm. Não bộ mách bảo chúng ta ăn đồ ngọt và béo vì chúng cung cấp năng lượng. Nhưng vấn đề là, thực phẩm hiện nay chứa nhiều đường và chất béo hơn bất cứ thứ gì có trong tự nhiên. Hãy tưởng tượng một miếng trái cây – nó có một ít đường, nhưng không nhiều bằng một lon nước ngọt. Chất béo cũng vậy. Một miếng gà rán chứa nhiều chất béo hơn một miếng thịt gà ta.
+
+Các công ty thực phẩm biết cách bộ não của chúng ta hoạt động. Họ tạo ra những thực phẩm siêu ngọt và béo ngậy, và chúng ta ăn quá nhiều mà không hề nhận ra.  Giống như việc cho một đứa trẻ thoải mái lấy kẹo trong cửa hàng. Chúng sẽ ăn quá nhiều mặc dù biết rằng điều đó không tốt cho chúng.
+
+Đáng buồn thay, những người chịu ảnh hưởng nhiều nhất từ việc ăn quá nhiều thực phẩm không lành mạnh thường là những người ít có khả năng chi trả nhất. Thực phẩm chứa nhiều đường và chất béo là những nguồn calo rẻ nhất trong cửa hàng.  Bạn có thể mua được nhiều calo khoai tây chiên hơn là cà rốt với cùng một số tiền. Đây là một vấn đề lớn vì nó khiến những người có thu nhập thấp khó ăn uống lành mạnh hơn.
+
+Chính phủ cũng đóng một vai trò trong việc này. Họ trả tiền cho nông dân trồng ngô và đậu nành, chứ không phải cà rốt hoặc các loại rau lành mạnh khác. Điều này có nghĩa là họ đang gián tiếp khiến thực phẩm không lành mạnh rẻ hơn. Giống như họ đang nói, "Hãy ăn uống lành mạnh", nhưng lại khiến việc ăn uống kém lành mạnh trở nên dễ dàng và rẻ hơn.  Thật khó hiểu phải không?
+
+Tất cả lượng ngô giá rẻ này đã thay đổi cách chúng ta ăn uống. Nó khiến chúng ta ăn nhiều hơn mức cần thiết và khiến việc lựa chọn thực phẩm lành mạnh trở nên khó khăn hơn.  Chúng ta hiện đang phải đối mặt với một tình thế tiến thoái lưỡng nan: với quá nhiều loại thực phẩm khác nhau, làm sao chúng ta biết cái gì tốt cho mình và cái gì không? Đó là một câu hỏi hóc búa, và nó ngày càng trở nên khó khăn hơn.

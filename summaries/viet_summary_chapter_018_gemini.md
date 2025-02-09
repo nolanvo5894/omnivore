@@ -1,0 +1,21 @@
+## 18. Rừng xanh - Người sống sót - Thực phẩm
+
+Tác giả kể về ý tưởng chuẩn bị một bữa tối đặc biệt, một bữa ăn mà mọi nguyên liệu đều do chính tay mình săn bắt, hái lượm hoặc trồng trọt.  Ông gọi đó là bữa ăn “chuỗi thức ăn ngắn nhất”,  không hề có sự can thiệp của siêu thị, chợ búa hay nhà máy.  Chỉ có ông và thiên nhiên.
+
+Việc trồng rau quả khá dễ dàng vì ông vốn có kinh nghiệm làm vườn.  Nhưng săn bắn và hái lượm thì hoàn toàn mới mẻ. Ông chưa từng cầm súng săn bao giờ!  Ký ức tuổi thơ chỉ còn lại những buổi đi bắt nghêu, hái mận biển cùng mẹ. Song, ông cũng nhớ rõ những lời cảnh báo của mẹ về nấm độc và quả rừng, khiến ông không dám đụng đến bất kỳ loại nấm dại nào sau đó.
+
+Tuy nhiên, để có được bữa ăn đặc biệt này, tác giả rất muốn có nấm rừng.  Nấm dại dường như là đại diện hoàn hảo cho “nghịch lý của loài ăn tạp”: làm sao biết được thứ gì an toàn để ăn?  Nghịch lý này đúng với tất cả chúng ta, những sinh vật có thể ăn cả động vật lẫn thực vật. Ngay cả khi đứng trước vô vàn lựa chọn trong siêu thị, làm sao ta biết được đâu mới thực sự tốt cho mình?
+
+Tác giả nhận ra rằng dù săn bắt hái lượm không còn thiết thực trong cuộc sống hiện đại, nhưng nó vẫn mang một sức hấp dẫn kỳ lạ.  Ông chỉ ra rằng người săn bắt hái lượm thời xưa làm việc ít giờ hơn, chế độ ăn lại lành mạnh hơn, sống lâu hơn, cao lớn hơn và ít bệnh tật hơn so với con người hiện đại. Điều này khiến ta phải suy ngẫm về sự thay đổi trong mối quan hệ của chúng ta với thực phẩm.
+
+Mặc dù không còn *cần* săn bắt hái lượm, nhiều người vẫn thích làm vườn, săn bắn hay tìm kiếm thức ăn hoang dã. Tác giả tin rằng đó là cách để chúng ta kết nối lại với nguồn gốc của thực phẩm, không chỉ đơn thuần là người tiêu dùng thụ động.  Ông muốn tự mình trải nghiệm sự kết nối đó, qua một bữa ăn hoàn toàn do mình tạo ra.  Ông sẽ là cả một “hệ thống thực phẩm” của riêng mình!
+
+Bên cạnh mong muốn kết nối trực tiếp với thiên nhiên, tác giả cũng cảm thấy áp lực phải học săn bắn, một kỹ năng thường được coi là “nam tính”. Ông tự hỏi liệu việc săn bắn có giúp mình gần gũi với thiên nhiên hơn, hay thay đổi quan điểm về việc ăn thịt hay không.
+
+Để chuẩn bị cho cuộc phiêu lưu săn bắt hái lượm, tác giả phải học hỏi từ đầu. Ông đăng ký một khóa học hướng dẫn săn bắn, điều này có vẻ hơi mâu thuẫn: cần giấy phép để săn bắn nhưng lại không cần giấy phép để mua súng!  Từ đó, ông bắt đầu nhìn thế giới bằng con mắt khác. Mỗi chuyến dạo chơi trong rừng bỗng trở thành một cuộc thám hiểm tìm kiếm thức ăn tiềm năng. Ông chú ý đến những loài cây có thể ăn được mà trước đây mình chưa từng để ý, như hoa cúc, rau diếp mỏ và mù tạt dại. Thậm chí, ông còn bắt đầu nhận biết các loài chim có thể ăn được như chim cút và chim cu.  Cứ như thể ông đã tái khám phá thiên nhiên như một siêu thị khổng lồ.
+
+Một hôm, khi đang tìm nấm chanterelle gần những cây sồi, ông phát hiện một cây nấm màu vàng rực giống hệt trong sách hướng dẫn.  Nhưng rồi ông nhớ đến lời cảnh báo về “chanterelle giả”, một loại nấm độc có hình dáng tương tự. Ông nhận ra mình không thể chắc chắn nó có an toàn hay không.  Dù đã nghĩ đến việc gọi cho Angelo, người thầy hướng dẫn hái lượm của mình, cuối cùng ông quyết định bỏ cây nấm đi. Trải nghiệm này một lần nữa khẳng định “nghịch lý của loài ăn tạp”: ngay cả với sách hướng dẫn và lời khuyên của chuyên gia, việc lựa chọn thực phẩm đúng đắn vẫn rất khó khăn.
+
+Angelo là một người thợ rèn Sicilia sống trong một lò rèn cổ ở California.  Ông đam mê tái hiện hương vị tuổi thơ, luôn hái lượm, săn bắn, nấu nướng và chia sẻ thành quả với bạn bè. Tác giả nhận ra Angelo chính là người hướng dẫn hoàn hảo, giúp ông khám phá thế giới săn bắt hái lượm.  Angelo sẵn sàng dẫn ông đi tìm nấm chanterelle và thậm chí còn đề nghị dạy ông săn lợn rừng và vịt trời sau khi ông có giấy phép săn bắn.
+
+Toàn bộ trải nghiệm này khiến tác giả suy nghĩ sâu sắc về mối quan hệ của mình với thực phẩm và thiên nhiên. Ông học cách nhìn thế giới qua một lăng kính khác, một lăng kính tập trung vào sự sinh tồn và duy trì sự sống. Ông cũng biết rằng việc săn bắn sẽ thách thức quan điểm của ông về việc ăn thịt. Ông sẵn sàng đối mặt với những cảm xúc đó và quyết định xem liệu săn bắn có phải là điều mình có thể làm một cách đúng đắn hay không. Hành trình này không chỉ đơn giản là vì một bữa ăn, mà còn là để hiểu về mối quan hệ phức tạp giữa con người và thức ăn.

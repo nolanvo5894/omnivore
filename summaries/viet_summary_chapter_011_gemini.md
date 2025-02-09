@@ -1,0 +1,19 @@
+## 11. Organic Food
+
+Chương này bàn về thực phẩm hữu cơ, liệu nó có thực sự tốt như quảng cáo hay không. Tác giả đã đi thăm một số trang trại hữu cơ lớn và nhận ra rằng dù không dùng thuốc trừ sâu hay hoá chất độc hại, những nơi này vẫn còn tồn tại nhiều vấn đề.
+
+Điển hình là trang trại gà Petaluma Poultry, nơi nuôi gà “Rosie”.  Bao bì sản phẩm vẽ ra hình ảnh những chú gà Rosie sống vui vẻ trong một nông trại nhỏ xinh, nhưng thực tế chúng bị nhốt trong những nhà kho khổng lồ, chen chúc cùng hàng ngàn con khác. Dù được gọi là "gà thả vườn",  cửa ra vào thường xuyên đóng kín, gà không được ra ngoài. Giống gà Cornish Cross broilers được nuôi ở đây lớn rất nhanh để có thể bán sớm, nhưng cũng vì thế mà chân chúng không đủ khoẻ để nâng đỡ cơ thể, nhiều con thậm chí không thể đi lại được khi mới 7 tuần tuổi.
+
+Tác giả cũng đến thăm nhà máy chế biến, nơi gà được xử lý thành thịt đóng gói chỉ trong vài phút. Hệ thống tự động hoá cao mang lại hiệu quả nhưng cũng khiến người ta cảm thấy có phần tàn nhẫn với vật nuôi.  Những nhà kho nuôi gà được ví như doanh trại quân đội, nồng nặc mùi amoniac.  Tuy được nuôi rộng rãi hơn và sống lâu hơn gà công nghiệp thông thường một chút, nhưng cuộc sống của những con gà hữu cơ này vẫn chẳng mấy dễ chịu.
+
+Để kiểm chứng chất lượng thực phẩm hữu cơ, tác giả đã tự tay nấu một bữa ăn hoàn toàn bằng nguyên liệu hữu cơ mua từ siêu thị Whole Foods.  Từ gà nướng, rau củ đến kem tráng miệng, tất cả đều là đồ hữu cơ.  Ông cũng thử một suất ăn tối hữu cơ chế biến sẵn nhưng thấy chất lượng không ngon, giống như đồ ăn trên máy bay. Bữa ăn tự nấu ngon hơn hẳn, đặc biệt là rau củ được trồng tại địa phương ở California. Rau hữu cơ tươi lâu hơn do không bị bơm ni-tơ tổng hợp, vốn khiến rau lớn nhanh nhưng không chắc khoẻ.
+
+Vậy thực phẩm hữu cơ có thực sự tốt hơn? Đôi khi, đặc biệt là với thịt. Gà không dùng kháng sinh và thức ăn biến đổi gen chắc chắn sẽ ngon hơn. Nhưng độ tươi ngon cũng là yếu tố quan trọng. Rau củ thông thường hái trực tiếp từ vườn luôn ngon hơn rau hữu cơ vận chuyển đường dài.
+
+Về lợi ích sức khoẻ, thực phẩm hữu cơ chứa ít thuốc trừ sâu hơn, vốn là tác nhân gây ung thư và nhiều bệnh khác.  Trẻ em cần được bảo vệ khỏi thuốc trừ sâu vì cơ thể chúng còn non nớt. Thịt và sữa hữu cơ cũng không chứa hormone tăng trưởng hay atrazine - một loại thuốc diệt cỏ dùng trên ngô có thể làm thay đổi giới tính của ếch, và chưa ai biết tác hại của nó đối với con người.
+
+Một nghiên cứu cho thấy trái cây và rau hữu cơ chứa nhiều vitamin C và polyphenol - hợp chất thực vật tự nhiên giúp bảo vệ cơ thể khỏi bệnh tật. Cây trồng không bị phun thuốc trừ sâu sẽ sản sinh nhiều polyphenol hơn để tự vệ trước sâu bệnh. Con người vốn tiến hoá bằng cách ăn thực vật hữu cơ tự nhiên, do đó cơ thể chúng ta quen với những dưỡng chất này. Tuy nhiên, hệ thống thực phẩm hiện đại đã loại bỏ nhiều hợp chất có lợi cho sức khỏe.
+
+Dù thực phẩm hữu cơ công nghiệp tốt hơn thực phẩm công nghiệp thông thường, nó vẫn còn nhiều vấn đề. Điều kiện làm việc của công nhân nông trại không tốt, vật nuôi vẫn sống trong môi trường chật chội. Việc vận chuyển thực phẩm đường dài tiêu tốn rất nhiều nhiên liệu hoá thạch, đi ngược lại ý tưởng ban đầu về canh tác hữu cơ bền vững, sử dụng năng lượng tái tạo.  Tác giả nhận ra bữa ăn hữu cơ của mình tiêu tốn gần như một bữa ăn ở McDonald's do chi phí vận chuyển.
+
+Cuối cùng, tác giả tìm hiểu về Joel Salatin, một nông dân ở Virginia, người điều hành một trang trại bền vững thực sự.  Salatin từ chối gửi thực phẩm cho tác giả vì ông cho rằng vận chuyển thực phẩm đường dài là điều không nên.  Trang trại của Salatin là một cơ sở kinh doanh gia đình nhỏ, bán sản phẩm tại địa phương. Mô hình này gần với lý tưởng canh tác hữu cơ mà tác giả theo đuổi, nên ông quyết định đến thăm trang trại của Salatin. Ông sắp được chứng kiến một chuỗi thực phẩm khác biệt, gắn bó mật thiết với đất đai và cộng đồng. Đó mới chính là canh tác hữu cơ đích thực!
