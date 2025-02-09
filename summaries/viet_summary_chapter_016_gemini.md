@@ -1,4 +1,4 @@
-## Chương 16: Thị trường - Một chuỗi thức ăn mới
+## 16. Thị trường - Một chuỗi thức ăn mới
 
 Hành trình của một miếng gà viên hay một cây xà lách đến bàn ăn của bạn thường dài đến 2.400 km, tương đương một con đường dài ngoằn ngoèo. Nhưng ở Trang trại Polyface của Joel Salatin, thực phẩm chỉ cần đi vài cây số là đến được với người tiêu dùng. Joel Salatin có một tầm nhìn rất khác về thực phẩm.
 

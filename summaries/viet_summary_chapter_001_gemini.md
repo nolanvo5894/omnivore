@@ -1,4 +1,4 @@
-## Ngô - Câu Chuyện Về Một Loài Cây Chế Ngự Nước Mỹ
+## 1. Ngô - Câu Chuyện Về Một Loài Cây Chế Ngự Nước Mỹ
 
 Hãy tưởng tượng một cánh đồng ngô bát ngát trải dài đến tận chân trời, những hàng cây ngô xanh mướt đung đưa trong gió. Rồi lại hình dung đến một siêu thị sầm uất với hàng loạt kệ hàng đầy ắp thực phẩm đóng gói đủ màu sắc, tủ đông chất đầy kem và đồ ăn đông lạnh. Thoạt nhìn, hai nơi này dường như chẳng có điểm chung nào, nhưng sự thật lại hoàn toàn trái ngược! Bí mật là: siêu thị chính là một cánh đồng ngô được “ngụy trang” tinh vi!
 

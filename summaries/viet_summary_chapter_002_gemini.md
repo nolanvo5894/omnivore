@@ -1,4 +1,4 @@
-## Chương 2: Cánh đồng ngô - Một người nông dân, 140 miệng ăn
+## 2. Cánh đồng ngô - Một người nông dân, 140 miệng ăn
 
 Tưởng tượng một ly sữa sô cô la khổng lồ trải dài trên mặt đất. Đó chính là hình ảnh cánh đồng ngô ở Iowa vào đầu tháng Năm. Tôi đã có dịp ngồi trên chiếc máy kéo cũ kỹ, ì ạch cùng ông George Naylor, một nông dân địa phương, gieo hạt ngô trên cánh đồng của mình. Việc điều khiển chiếc máy kéo kéo theo cỗ máy gieo hạt thẳng hàng trên nền đất mềm nhũn ấy chẳng khác nào lái thuyền trên biển sữa sô cô la đặc quánh! Ông George, một người đàn ông to lớn với khuôn mặt hiền hậu và bộ râu bạc trắng, đã chỉ cho tôi cách vận hành. Ông giải thích nếu hàng ngô không thẳng, hàng xóm sẽ trêu chọc, và năng suất ngô cũng sẽ giảm. Trang trại của ông nằm trên vùng đất màu mỡ bậc nhất thế giới – lớp đất đen, giàu dinh dưỡng được bồi đắp qua hàng ngàn năm. Gia đình ông George đã canh tác trên mảnh đất này từ những năm 1880.
 
